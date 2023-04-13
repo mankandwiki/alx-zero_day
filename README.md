@@ -1,1 +1,1 @@
-My first readme
+Nairobi is so cool
